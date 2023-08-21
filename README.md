@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BessyDestroyer
+- 👋 Hi, I’m @MrBessy
 - 👀 I’m interested in learning as much as I can.
 - 🌱 I'm currently studying A bachelor degree of Information Technology
 - 💞️ I’m looking to collaborate on anything really..
